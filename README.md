@@ -1,14 +1,14 @@
-# 🎵 Fatima Tuj-Zahra Binte Sayed: Rajkumari (Hindi)
+# 🎵 Sakina Al-Maryam Binte Sayed (Hindi)
         
 *Original song by **[Abu Sayed](https://abusayed.com.bd)***
 
-**Date Written:** February 19, 2025
-**Status:** Published on [abusayed.com.bd](https://abusayed.com.bd/projects/fatima-tuj-zahra-binte-sayed-rajkumari-hindi/)
+**Date Written:** February 08, 2025
+**Status:** Published on [abusayed.com.bd](https://abusayed.com.bd/projects/sakina-al-maryam-binte-sayed-hindi/)
 
 ---
 
 ## 📖 About this Song
-Dedicated to My Dear Daughter Fatima Tuj-Zahra Binte Sayed Lyrics [Verse 1]फातिमा, रात की रानी, तेरी चुप्पी में है दास्ताँ,तेरे नाम की रौशनी से जगमगाता है आसमाँ। [Chorus]ऐ मेरी बेटी, ऐ मेरी दुआओं का फूल,ख़ुदा के बाग़ में तू ही तो है सबसे नूरानी मूल। [Verse 2]तेरी यादों के सहारे जीते हैं ये पल,हर आँसू […]
+Dedicated to My Dear Daughter Sakina Al-Maryam Binte Sayed Lyrics [Verse 1]सकीना, तेरी महक से महके हैं ये वादी,तेरे बिना ये दिल है सूनी बस्ती, सन्नाटे की ग़ज़ल। [Chorus]ऐ मेरी चांदनी, ऐ मेरी रूह का सहारा,जन्नत की हवाओं में तू ही तो है प्यारा। [Verse 2]तेरी यादों के दीप जलाती हूँ हर शाम,हर सजदे में […]
 
 ---
 
