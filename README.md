@@ -1,14 +1,14 @@
-# 🎵 Khadija Al-Kubra Binte Sayed: Light Of Patience (Hindi)
+# 🎵 Fatima Tuj-Zahra Binte Sayed: Rajkumari (Hindi)
         
 *Original song by **[Abu Sayed](https://abusayed.com.bd)***
 
-**Date Written:** March 02, 2025
-**Status:** Published on [abusayed.com.bd](https://abusayed.com.bd/projects/khadija-al-kubra-binte-sayed-light-of-patience-hindi/)
+**Date Written:** February 19, 2025
+**Status:** Published on [abusayed.com.bd](https://abusayed.com.bd/projects/fatima-tuj-zahra-binte-sayed-rajkumari-hindi/)
 
 ---
 
 ## 📖 About this Song
-Dedicated to My Dear Daughter Khadija Al-Kubra Binte Sayed Lyrics [Verse 1] खदीजा मेरी, हवा में उड़ती तू, पिता के दिल को, चैन देती तू। तेरी यादें, मेरे पास हैं, हर सांस में, तेरा एहसास है। [Chorus] खदीजा अल-कुबरा बिन्ते सईद, प्यारी, स्वर्ग में तू, मेरी दुआ की नारी। तेरी रोशनी, मेरा सहारा बन, हर […]
+Dedicated to My Dear Daughter Fatima Tuj-Zahra Binte Sayed Lyrics [Verse 1]फातिमा, रात की रानी, तेरी चुप्पी में है दास्ताँ,तेरे नाम की रौशनी से जगमगाता है आसमाँ। [Chorus]ऐ मेरी बेटी, ऐ मेरी दुआओं का फूल,ख़ुदा के बाग़ में तू ही तो है सबसे नूरानी मूल। [Verse 2]तेरी यादों के सहारे जीते हैं ये पल,हर आँसू […]
 
 ---
 
